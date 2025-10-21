@@ -1,1 +1,1 @@
-# Will update the repo soon, state tune.
+# Will update the repo soon, stay tune.
